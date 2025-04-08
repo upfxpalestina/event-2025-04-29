@@ -14,3 +14,8 @@ Hosted by the UPF in Solidarity with Palestine collective and the [Red Universit
 
 Compra el llibre:<br>
 <a href="https://arallibres.cat/cataleg/palestina-des-de-dins/"><img src="book_cover_mas.jpg" alt="book cover" style="width:200px;"/></a>
+
+<br>
+
+Descarrega't el cartell<br>
+<a href="upf4pal_bookfair_mas_2025_04_29.jpeg"><img src="upf4pal_bookfair_mas_2025_04_29.jpeg" alt="poster" style="width:200px;"/></a>
