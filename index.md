@@ -10,7 +10,7 @@ Cristina Mas és periodista i sotscap d’internacional al Diari Ara, on treball
 
 Nour Torello és activista i investigadora sobre Palestina a partir d'epistemologies queer.
  
-Hosted by the UPF in Solidarity with Palestine collective and the [Red Universitaria por Palestina (RUxP)](https://www.redxpalestina.org).
+Hosted by the [UPF in Solidarity with Palestine collective](https://upfxpalestina.github.io) and the [Red Universitaria por Palestina (RUxP)](https://www.redxpalestina.org).
 
 Compra el llibre:<br>
 <a href="https://arallibres.cat/cataleg/palestina-des-de-dins/"><img src="book_cover_mas.jpg" alt="book cover" style="width:200px;"/></a>
