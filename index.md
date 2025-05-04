@@ -1,6 +1,6 @@
 **Presentació del llibre de Cristina Mas en conversa amb Nour Torello**
 
-**Dimarts, 29 d'abril de 2025, a les 18:00**
+_**Ajornat a causa del tall d'electricitat i els retards del tren; pròximament es publicarà una nova data**_
 
 **24.112**<br>
 **Ciutadella Campus**<br>
