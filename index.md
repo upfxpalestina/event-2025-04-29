@@ -1,8 +1,8 @@
 **Presentació del llibre de Cristina Mas en conversa amb Nour Torello**
 
-_**Ajornat a causa del tall d'electricitat i els retards del tren; pròximament es publicarà una nova data**_
+**Dimarts, 10 de juny de 2025**
 
-**24.112**<br>
+**L'Aula es publicarà aviat**<br>
 **Ciutadella Campus**<br>
 **Universitat Pompeu Fabra**
 
@@ -10,12 +10,12 @@ Cristina Mas és periodista i sotscap d’internacional al Diari Ara, on treball
 
 Nour Torello és activista i investigadora sobre Palestina a partir d'epistemologies queer.
  
-Hosted by the [UPF in Solidarity with Palestine collective](https://upfxpalestina.github.io) and the [Red Universitaria por Palestina (RUxP)](https://www.redxpalestina.org).
+Hosted by the UPF in Solidarity with Palestine collective, the Red Universitaria por Palestina (RUxP), the Research Group on Gender and Inequalities (GRETA), and the Research Group on Health Inequalities, Environment - Employment Conditions Network (GREDS-EMCONET).
 
 Compra el llibre:<br>
 <a href="https://arallibres.cat/cataleg/palestina-des-de-dins/"><img src="book_cover_mas.jpg" alt="book cover" style="width:200px;"/></a>
 
 <br>
 
-Descarrega't el cartell:<br>
-<a href="upf4pal_bookfair_mas_2025_04_29.jpeg"><img src="upf4pal_bookfair_mas_2025_04_29.jpeg" alt="poster" style="width:200px;"/></a>
+<!--Descarrega't el cartell:<br>
+<a href="upf4pal_bookfair_mas_2025_04_29.jpeg"><img src="upf4pal_bookfair_mas_2025_04_29.jpeg" alt="poster" style="width:200px;"/></a>-->
