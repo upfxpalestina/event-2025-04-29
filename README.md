@@ -2,9 +2,9 @@
 
 Cristina Mas
 
-29 April 2025, 18:00 
+10 June 2025, 18:00 
 
-Room 24.112a<br>
+<br>
 Universitat Pompeu Fabra<br>
 Ciutadella Campus<br>
 
