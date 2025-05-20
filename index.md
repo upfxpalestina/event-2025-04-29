@@ -18,4 +18,4 @@ Compra el llibre:<br>
 <br>
 
 Descarrega't el cartell:<br>
-<a href="upf4pal_bookfair_mas_2025_06_10.jpeg"><img src="upf4pal_bookfair_mas_2025_04_29.jpeg" alt="poster" style="width:200px;"/></a>
+<a href="upf4pal_bookfair_mas_2025_06_10.png"><img src="upf4pal_bookfair_mas_2025_06_10.png" alt="poster" style="width:200px;"/></a>
