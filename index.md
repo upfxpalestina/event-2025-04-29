@@ -2,7 +2,7 @@
 
 **Dimarts, 10 de juny de 2025**
 
-**L'Aula es publicarà aviat**<br>
+**24.009t**<br>
 **Ciutadella Campus**<br>
 **Universitat Pompeu Fabra**
 
