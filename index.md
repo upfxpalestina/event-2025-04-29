@@ -1,6 +1,6 @@
 **Presentació del llibre de Cristina Mas en conversa amb Nour Torello**
 
-**Dimarts, 10 de juny de 2025**
+**Dimarts, 10 de juny de 2025, 18:00-19:30**
 
 **24.009**<br>
 **Ciutadella Campus**<br>
