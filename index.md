@@ -2,7 +2,7 @@
 
 **Dimarts, 10 de juny de 2025**
 
-**24.009t**<br>
+**24.009**<br>
 **Ciutadella Campus**<br>
 **Universitat Pompeu Fabra**
 
